@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @edenbelle822
-- 👀 I’m interested in reading and artttt
+- 👀 I’m interested in reading and artttt and i looove romantasies
 - 🌱 I’m currently learning to code!!!
 - 💞️ I’m looking to collaborate on ummmmm idk!
 - 📫 How to reach me eden.earith@icloud.com
